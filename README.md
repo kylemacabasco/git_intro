@@ -1,1 +1,2 @@
 Kyle Macabasco
+macabask@oregonstate.edu
